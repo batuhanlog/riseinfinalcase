@@ -1,2 +1,2 @@
 # riseinfinalcase
-BNB AND SOLİDTY CHAİNn
+BNB AND SOLİDTY CHAİN
